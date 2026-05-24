@@ -1,12 +1,12 @@
 <img width="1254" height="1254" alt="1492 Conquest of Paradise" src="https://github.com/user-attachments/assets/8c8bc936-a239-42c4-8aa1-fa72b93e2ed5" />
 
-Torrent download link :
-
-https://www.shopcom.tn/product/1492-conquest-of-paradise-vangelis/torrent-download
-
 Download link :
 
 https://www.shopcom.tn/product/1492-conquest-of-paradise-vangelis/download
+
+Torrent download link :
+
+https://www.shopcom.tn/product/1492-conquest-of-paradise-vangelis/torrent-download
 
 Product Price : Free
 
